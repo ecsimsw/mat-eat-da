@@ -5,11 +5,14 @@
 ![IMG_6622](https://github.com/ecsimsw/today-steak/assets/46060746/3deba430-f89a-44b5-96fd-6240641fd946)
 
 ## 2023-12-30
+![IMG_6587 2](https://github.com/ecsimsw/today-steak/assets/46060746/51fbe92f-9036-4364-a6c1-a11bf7f0a425)
 ![IMG_6610 4](https://github.com/ecsimsw/today-steak/assets/46060746/fe2d2ddc-267b-44c8-af22-144829e551dc)
-
 
 ## 2023-12-27
 ![IMG_8228 2](https://github.com/ecsimsw/today-steak/assets/46060746/08d329c1-32f3-44e6-bc6d-71fafdef763a)
+
+## 2023-12-22
+![IMG_6631](https://github.com/ecsimsw/today-steak/assets/46060746/48fb9c53-bf08-42fa-b564-97668e3643a7)
 
 ## 2023-12-19
 ![IMG_6527](https://github.com/ecsimsw/today-steak/assets/46060746/9f54d95d-804e-463c-8d87-db2d73fc01b9)
