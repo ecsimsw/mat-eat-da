@@ -5,6 +5,7 @@
 ![IMG_6622](https://github.com/ecsimsw/today-steak/assets/46060746/3deba430-f89a-44b5-96fd-6240641fd946)
 
 ## 2023-12-30
+![IMG_6610 4](https://github.com/ecsimsw/today-steak/assets/46060746/fe2d2ddc-267b-44c8-af22-144829e551dc)
 
 
 ## 2023-12-27
