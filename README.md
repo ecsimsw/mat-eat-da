@@ -1,5 +1,5 @@
-# today-steak
-오늘의 스테이크
+# Daily special
+맛난거 먹어야징
 
 ## 2024-01-01
 ![IMG_6622](https://github.com/ecsimsw/today-steak/assets/46060746/3deba430-f89a-44b5-96fd-6240641fd946)
