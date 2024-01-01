@@ -1,12 +1,12 @@
 # Daily special
-맛난거 먹어야징
+2024 김진환 목표 : 맛난거 많이 먹기
 
 ## 2024-01-01
 ![IMG_6622](https://github.com/ecsimsw/today-steak/assets/46060746/3deba430-f89a-44b5-96fd-6240641fd946)
 
 ## 2023-12-30
 ![IMG_6587 2](https://github.com/ecsimsw/today-steak/assets/46060746/51fbe92f-9036-4364-a6c1-a11bf7f0a425)
-![IMG_6610 4](https://github.com/ecsimsw/today-steak/assets/46060746/fe2d2ddc-267b-44c8-af22-144829e551dc)
+![IMG_6610 5](https://github.com/ecsimsw/daily-special/assets/46060746/c624ef77-2596-45b7-b8fc-47c1c9f01c9b)
 
 ## 2023-12-27
 ![IMG_8228 2](https://github.com/ecsimsw/today-steak/assets/46060746/08d329c1-32f3-44e6-bc6d-71fafdef763a)
@@ -21,7 +21,6 @@
 ![IMG_6498 2](https://github.com/ecsimsw/today-steak/assets/46060746/7da94d33-9e39-43ae-84e4-fb43dc2ab0b7)
 
 ## 2023-12-14
-![IMG_6474](https://github.com/ecsimsw/today-steak/assets/46060746/3792929d-cc0d-4ef1-aec8-c068b1002f93)
 ![IMG_6475](https://github.com/ecsimsw/today-steak/assets/46060746/89a95b62-8872-471f-89be-c2742af8d926)
 
 ## 2023-12-05
