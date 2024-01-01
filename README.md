@@ -1,6 +1,12 @@
 # today-steak
 오늘의 스테이크
 
+## 2024-01-01
+![IMG_6622](https://github.com/ecsimsw/today-steak/assets/46060746/3deba430-f89a-44b5-96fd-6240641fd946)
+
+## 2023-12-30
+
+
 ## 2023-12-27
 ![IMG_8228 2](https://github.com/ecsimsw/today-steak/assets/46060746/08d329c1-32f3-44e6-bc6d-71fafdef763a)
 
