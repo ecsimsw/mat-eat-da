@@ -1,6 +1,9 @@
 # Mat-eat-da
 2024 김진환 목표 : 맛난거 많이 먹기
 
+## 2024-01-03
+![IMG_6689 2](https://github.com/ecsimsw/mat-eat-da/assets/46060746/a2267bea-ff7f-469b-80fa-6b2ea6caec9e)
+
 ## 2024-01-01
 ![IMG_6622](https://github.com/ecsimsw/today-steak/assets/46060746/3deba430-f89a-44b5-96fd-6240641fd946)
 
